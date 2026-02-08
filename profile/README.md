@@ -1,5 +1,3 @@
-# Active EverWebinar Coupon (2026) Get $1,200 Discount & 30-Day Trial
-
 Use these [**active EverWebinar coupon codes**](https://yupbeat.com/recommends/everwebinar-deals/) to get a $1,200 discount on annual plans, and get a 30-day free trial for new users on EverWebinar.
 
 ## $1,200 Discount With EverWebinar Coupon on Annual Plan
